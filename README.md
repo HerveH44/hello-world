@@ -1,2 +1,4 @@
 # hello-world
-My first repository :)
+
+It seems really fine :) ! Big sheers to my lovely plipeuse and all our piccoli plipers !
+
